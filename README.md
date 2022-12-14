@@ -1,4 +1,4 @@
-### Olá eu sou Alessandra Carvalhoo 26 
+### Olá eu sou Alessandra Carvalho 26 
 - 🔭 Hoje trabalho como tecnica superior de educação 
 - 🌱 Estudando Produçoes de Recursos Educativos Digitais 
 
