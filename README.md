@@ -1,5 +1,7 @@
-### Olá eu sou Alessandra Carvalho 26 & Hariana Baldé 
-- 🔭 Hoje trabalho como tecnica superior de educação 
+### Olá 
+Equipa :
+Alessandra Carvalho 26 & Hariana Baldé 
+- 🔭 Hoje trabalhamos  como tecnica superior de educação 
 - 🌱 Estudando Produçoes de Recursos Educativos Digitais 
 
 <div align="center">
